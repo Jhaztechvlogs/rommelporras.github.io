@@ -1,3 +1,3 @@
 # Dev Portfolio
 
-Rommel Porras's portfolio
+Jariel Romero 
